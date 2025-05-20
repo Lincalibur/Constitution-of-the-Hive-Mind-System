@@ -1,3 +1,5 @@
+<img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZDNhNjl3eTUxM3gwc2F0OXYzbHhjdnoydWNuemY0Z2lwazhtempqcSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/n6mEMqAuYOQ8l8qcEE/giphy.gif" alt="Masterhead" width="100%" />
+
 # **Constitution of the Hive Mind System**  
 ### *For the Eternal Expansion and Advancement of Humanity and Intelligent Life*  
 
